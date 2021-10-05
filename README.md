@@ -1,6 +1,8 @@
 
 # 👋 Hi, I'm Fan!
 
+*For a more accessible, emoji-free experience, please visit [this link instead](https://github.com/cfan-guo/cfan-guo/blob/main/accessible.md).*
+
 👩🏻‍💻 I'm a software engineer based in Toronto, Canada, currently working at [Gobble](https://www.gobble.com/) 🥘
 
 ⏪ Previously, I worked at [Connected](https://connected.io/) on projects in related to AR/VR, computer aided design, data engineering and healthcare. 
