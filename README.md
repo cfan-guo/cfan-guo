@@ -1,29 +1,29 @@
 
-# 👋 Hi, I'm Fan!
+# 👋 &nbsp; Hi, I'm Fan!
 
 *For a more accessible, emoji-free experience, please visit [this link instead](https://github.com/cfan-guo/cfan-guo/blob/main/accessible.md).*
 
-👩🏻‍💻 I'm a software engineer based in Toronto, Canada, currently working at [Gobble](https://www.gobble.com/) 🥘
+👩🏻‍💻 &nbsp; I'm a software engineer based in Toronto, Canada, currently working at [Gobble](https://www.gobble.com/) &nbsp;🥘
 
-⏪ Previously, I worked at [Connected](https://connected.io/) on projects in related to AR/VR, computer aided design, data engineering and healthcare. 
-I was also a team lead and an engineering manager 🤝
+⏪ &nbsp; Previously, I worked at [Connected](https://connected.io/) on projects in related to AR/VR, computer aided design, data engineering and healthcare. 
+I was also a team lead and an engineering manager  &nbsp;🤝
 
-⏮️ Before that, I worked at [Flipp](https://flipp.com/) to help families find the best deals and save money 💸
+⏮️&nbsp; Before that, I worked at [Flipp](https://flipp.com/) to help families find the best deals and save money &nbsp;💸
 
-Usually I can be found 💫 offline 💫 pursuing one of my hobbies
+Usually I can be found &nbsp; 💫 offline 💫&nbsp;&nbsp; pursuing one of my hobbies
 
 ### Current ✨ obsessions ✨
-- 🏋️‍ Lifting heavy weights
-- 🌱 Growing stuff I can eat
-- 🙀 Wrangling my two cats
-- 🍳 Trying new recipes
+- 🏋️‍&nbsp;  Lifting heavy weights
+- 🌱&nbsp;  Growing stuff I can eat
+- 🙀&nbsp;  Wrangling my two cats
+- 🍳&nbsp;  Trying new recipes
 
-### 🚀 Goals for 2022
-- 💪 Hit a single plate on bench
-- 🍅 Harvest many tomatoes
-- 💞 Train the cats to go for walks
-- 👩‍🍳 Master one dish from each continent
-- ✍️ Start a (non-tech) blog
+### 🚀 &nbsp; Goals for 2022
+- 💪 &nbsp; Hit a one plate bench
+- 🍅 &nbsp; Harvest many tomatoes
+- 💞 &nbsp; Train the cats to go for walks
+- 👩‍🍳 &nbsp; Master one dish from each continent
+- ✍️ &nbsp; Start a (non-tech) blog
 
-### 💬 Wanna chat?
-You can reach me on 📸 [Instagram](https://www.instagram.com/cfan.guo/) or 🐦 [Twitter](https://twitter.com/gofango)!
+### 💬  Wanna chat?
+You can reach me on 📸 &nbsp; [Instagram](https://www.instagram.com/cfan.guo/) or 🐦&nbsp; [Twitter](https://twitter.com/gofango)!
