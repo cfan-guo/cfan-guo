@@ -18,12 +18,14 @@ Usually I can be found &nbsp; 💫 offline 💫&nbsp;&nbsp; pursuing one of my h
 - 🙀&nbsp;  Wrangling my two cats
 - 🍳&nbsp;  Trying new recipes
 
-### 🚀 &nbsp; Goals for 2022
-- 💪 &nbsp; Hit a one plate bench
-- 🍅 &nbsp; Harvest many tomatoes
-- 💞 &nbsp; Train the cats to go for walks
-- 👩‍🍳 &nbsp; Master one dish from each continent
-- ✍️ &nbsp; Start a (non-tech) blog
+### 🚀 &nbsp; Goals for 2023
+- 💪 &nbsp; 3 plate squat and deadlift???
+- 🏃 &nbsp; Be able to run at least 10k
+- 👨‍🌾 &nbsp; Harvest many tomatoes, peppers and potatoes
+- 🧶 &nbsp; Learn to crochet
+- 👩‍🍳 &nbsp; Meal prep at least once a month
+- ✍️ &nbsp; Add blog content at least once a week
+- 🧘 &nbsp; Add daily yoga, meditation and walking sessions
 
 ### 💬  Wanna chat?
 You can reach me on 📸 &nbsp; [Instagram](https://www.instagram.com/cfan.guo/) or 🐦&nbsp; [Twitter](https://twitter.com/gofango)!
