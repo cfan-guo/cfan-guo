@@ -19,12 +19,14 @@ Usually I can be found offline pursuing one of my hobbies.
 - Wrangling my two cats
 - Trying new recipes
 
-### Goals for 2022
-- Hit a single plate on bench
-- Harvest many tomatoes
-- Train the cats to go for walks
-- Master one dish from each continent
-- Start a (non-tech) blog
+### Goals for 2023
+- 3 plate squat and deadlift???
+- Be able to run at least 10k
+- Harvest many tomatoes, peppers and potatoes
+- Learn to crochet
+- Meal prep at least once a month
+- Add blog content at least once a week
+- Add daily yoga, meditation and walking sessions
 
 ### Wanna chat?
 You can reach me on [Instagram](https://www.instagram.com/cfan.guo/) or [Twitter](https://twitter.com/gofango)!
