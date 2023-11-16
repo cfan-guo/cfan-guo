@@ -3,9 +3,9 @@
 
 *For a more accessible, emoji-free experience, please visit [this link instead](https://github.com/cfan-guo/cfan-guo/blob/main/accessible.md).*
 
-👩🏻‍💻 &nbsp; I'm a software engineer based in Toronto, Canada, currently working at [Properly](https://www.properly.ca/) &nbsp;🏘️
+👩🏻‍💻 &nbsp; I'm a senior software engineer based in Toronto, Canada and currently working at [Jobber](https://getjobber.com/) &nbsp;🛠️
 
-⏪ &nbsp; Previously, I worked at [Gobble](https://www.gobble.com/) &nbsp;🥘 as a Senior Software Engineer and [Connected](https://connected.io/) on projects in related to AR/VR, computer aided design, data engineering and healthcare. 
+⏪ &nbsp; Previously, I worked at [Properly](https://www.properly.ca/) &nbsp;🏘️, [Gobble](https://www.gobble.com/) &nbsp;🥘 and [Connected](https://connected.io/) (now [Thoughtworks Canada](https://www.thoughtworks.com/en-ca)). 
 I was also a team lead and an engineering manager  &nbsp;🤝
 
 ⏮️&nbsp; Before that, I worked at [Flipp](https://flipp.com/) to help families find the best deals and save money &nbsp;💸
