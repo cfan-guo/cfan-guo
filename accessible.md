@@ -18,17 +18,17 @@ Usually I can be found offline pursuing one of my hobbies.
 ### Current obsessions
 - Lifting heavy weights
 - Growing stuff I can eat
-- Wrangling my two cats
-- Trying new recipes
+- Wrangling my three cats
+- Crocheting frog hats and little sunflowers
 
-### Goals for 2023
-- 3 plate squat and deadlift???
+### Goals for 2024
+- Recover my 2023 PRs post-illness
 - Be able to run at least 10k
-- Harvest many tomatoes, peppers and potatoes
-- Learn to crochet
-- Meal prep at least once a month
+- Grow a ton of herbs and keep last years overwintered peppers alive
+- Crochet a vest and a cardigan
 - Add blog content at least once a week
-- Add daily yoga, meditation and walking sessions
+- Blog or journal weekly
+- Start pilates
 
 ### Wanna chat?
 You can reach me on [Instagram](https://www.instagram.com/cfan.guo/) or [Twitter](https://twitter.com/gofango)!
