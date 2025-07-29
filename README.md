@@ -5,26 +5,26 @@
 
 👩🏻‍💻 &nbsp; I'm a software engineer based in Toronto, Canada and currently working at [Jobber](https://getjobber.com/) as a senior software engineer &nbsp;🛠️
 
-⏪ &nbsp; My past lives include engineering roles at [Properly](https://www.properly.ca/) &nbsp;🏘️, [Gobble](https://www.gobble.com/) &nbsp;🥘 and [Connected](https://connected.io/) (now [Thoughtworks Canada](https://www.thoughtworks.com/en-ca)), where I was also a team lead and an engineering manager  &nbsp;🤝
+⏪ &nbsp; My past lives include engineering roles at [Properly](https://www.properly.ca/) &nbsp;🏘️, [Gobble](https://www.gobble.com/) &nbsp;🥘 and [Connected](https://connected.io/) (now [Thoughtworks Canada](https://www.thoughtworks.com/en-ca)), where I also tried out engineering management  &nbsp;🤝
 
-⏮️&nbsp; I started my career as an intern at [Flipp](https://flipp.com/) helping families find the best deals and save money &nbsp;💸
+⏮️&nbsp; I started my career as an intern at [Flipp](https://flipp.com/) &nbsp;💸
 
 Usually I can be found &nbsp; 💫 offline 💫&nbsp;&nbsp; pursuing one of my hobbies
 
 ### Current ✨ obsessions ✨
 - 🏋️‍&nbsp;  Lifting heavy weights
-- 🌱&nbsp;  Growing stuff I can eat
-- 🙀&nbsp;  Wrangling my ~~two~~ three(!!!) cats
-- 🧶&nbsp;  Crocheting frog hats and little sunflowers
+- 🌱&nbsp;  Ontario native plants and growing tomatoes
+- 🙀&nbsp;  Wrangling my ~~two~~ ~~three~~ four(!!!) cats
+- 🧶&nbsp;  Crocheting bag charms in the shape of foods
+- 🧵&nbsp;  Vintage Kenmore sewing machines and learning how to sew
+- 🍞&nbsp;  Sourdough breads, brownies, cookies, pizza, and more
 
-### 🚀 &nbsp; Goals for 2024
-**New!** This year I'm tracking my habits [here](https://docs.google.com/spreadsheets/d/1oDSaYFUw0rTlvEj81TgC3LYCETwflKrsUBbZnOQuzD0/edit?usp=sharing) 📈
-- 💪 &nbsp; Recover my 2023 PRs post-illness
-- 🏃 &nbsp; Be able to run at least 10k
-- 👨‍🌾 &nbsp; Grow a ton of herbs and keep last years overwintered peppers alive
-- 🧣 &nbsp; Crochet a vest and a cardigan
-- ✍️ &nbsp; Blog or journal weekly
-- 🧘 &nbsp; Start pilates
+### 🚀 &nbsp; Goals for 2025
+- [X] 💪&nbsp; Recover my 2023 PRs post-illness (final: 290lb squat, 270lb deadlift, 150lb bench)
+- [X] 🏃&nbsp; Run my first 10k race
+- [X] 🐝&nbsp; Expand my native plant garden catalog
+- [ ] 🪡&nbsp; Sew my first garment
+- [ ] 🛼&nbsp; Learn to rollerblade again
 
 ### 💬  Wanna chat?
-You can reach me on 📸 &nbsp; [Instagram](https://www.instagram.com/cfan.guo/) or 🐦&nbsp; [Twitter](https://twitter.com/gofango)!
+You can (try to) reach me on 📸 &nbsp; [Instagram](https://www.instagram.com/cfan.guo/)!
